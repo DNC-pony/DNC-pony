@@ -6,7 +6,7 @@ I love my friends (┬┬﹏┬┬) Please dont be shy to befriend me! <3
 
 ![68747470733a2f2f66696c652e67617264656e2f5a583452575338704d58784a2d3651492f79676f2f796561682e706e67](https://github.com/user-attachments/assets/dbdde06e-bcd8-4387-99f3-3400d028e0d5)
 
-### You found this cuz of ponytown, glad to know i peaked your interest! <3 ![giphy](https://github.com/user-attachments/assets/26e395de-a88d-4400-a53b-b051a9ef849b) 
+### You found this cuz of ponytown, glad to know i peaked your interest! <3 
 
 She / Her .. AEDT TIMEZONE 
 
