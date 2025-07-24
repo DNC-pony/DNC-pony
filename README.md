@@ -12,7 +12,7 @@
 
 <h1 align="center">From Ponytown? Glad to know i peaked your interest! <3</h1>
 
-<p align="center">She / Her .. AEDT TIMEZONE</p>
+<p align="center">She / Her .. AEST TIMEZONE</p>
 
 <p align="center">I will only notice your message if you whisper, I'm usually off doing things!</p>
 
