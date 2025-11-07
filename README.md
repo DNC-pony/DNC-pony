@@ -18,7 +18,7 @@
 
 <p align="center">C+H is allowed! Ships int is allowed <3</p>
 
-<p align="center">searching for me? @ Bakery Market location, campsite or im roaming around!!</p>
+<p align="center">searching for me? @ Picnic table near tree, Bakery Market location, campsite or im roaming around!!</p>
 
 <p align="center">don't cover/sit on me or my friends for too long, you will be hidden.</p>
 
