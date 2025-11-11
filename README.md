@@ -1,5 +1,5 @@
 <p align="center"><img width="466" height="469" alt="image" src="https://github.com/user-attachments/assets/eaa1fe0c-384c-40a6-8548-84ee7de1f08f" /> </p>  
-<img width="880" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" />
+<p align="center"><img width="580" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" /> </p> 
 
 
   <p align="center"><b>From Ponytown? Glad to know i peaked your interest!
