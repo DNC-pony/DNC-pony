@@ -7,5 +7,6 @@
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
 </p>
 <p align="center"> <img width="800" height="275" alt="image" src="https://i.pinimg.com/originals/c7/51/80/c75180dd098b1c25c8ef37ff4ffdcd4a.gif" /> </p><img width="828" 
+                                                                                                                                                         
 <img width="1080" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/dfbe97bb-ee49-4d33-941f-ce2e267d6ca7" />
 <p align="center">
