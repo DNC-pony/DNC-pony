@@ -1,4 +1,4 @@
-<p align="center"> <img width="828" height="512" alt="eac8b46d153a1be1fd3c8b3a484a51d0f3eabecc" src="https://github.com/user-attachments/assets/643a7462-d834-49fb-88d8-3246cd489a3e" /> </p>
+<p align="center"> <img width="628" height="312" alt="eac8b46d153a1be1fd3c8b3a484a51d0f3eabecc" src="https://github.com/user-attachments/assets/643a7462-d834-49fb-88d8-3246cd489a3e" /> </p>
 
 <p align="center">
   <b>From Ponytown? Glad to know i peaked your interest!
