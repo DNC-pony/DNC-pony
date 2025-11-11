@@ -7,4 +7,4 @@
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
 </p>
 
-<p align="center"> <img width="800" height="975" alt="image" src="https://i.pinimg.com/originals/c7/51/80/c75180dd098b1c25c8ef37ff4ffdcd4a.gif" /> </p><img width="828" 
+<p align="center"> <img width="1000" height="575" alt="image" src="https://i.pinimg.com/originals/c7/51/80/c75180dd098b1c25c8ef37ff4ffdcd4a.gif" /> </p><img width="828" 
