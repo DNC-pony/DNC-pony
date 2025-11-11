@@ -1,4 +1,4 @@
-<p align="center"><img width="736" height="736" alt="819e8c8a8c399526d68075747e2ec388" src="https://github.com/user-attachments/assets/400ff961-0bc0-4753-879f-014a51be87ba" /></p>  
+<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/29dd95a3-7b29-46e3-b0ba-cd6495bc6f0e" /> </p>  
 
   <p align="center"><b>From Ponytown? Glad to know i peaked your interest!
   She / Her .. AEST TIMEZONE.</b><br>
