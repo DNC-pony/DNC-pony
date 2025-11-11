@@ -1,6 +1,6 @@
 <h1 align="center">From Ponytown? Glad to know i peaked your interest!</h1>
 
-<img width="1000" height="1275" alt="image" src="https://github.com/user-attachments/assets/a161c605-61db-4cf3-969c-d8192893a765" />
+<img width="1000" height="1175" alt="image" src="https://github.com/user-attachments/assets/a161c605-61db-4cf3-969c-d8192893a765" />
 
 
 <p align="center">
