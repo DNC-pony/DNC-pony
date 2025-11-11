@@ -1,4 +1,4 @@
-<p align="center"> <img width="800" height="975" alt="image" src="https://i.pinimg.com/1200x/c1/d6/06/c1d606bf37f2721e72d163b19d235191.jpg" /> </p>
+<p align="center"> <img width="828" height="512" alt="eac8b46d153a1be1fd3c8b3a484a51d0f3eabecc" src="https://github.com/user-attachments/assets/643a7462-d834-49fb-88d8-3246cd489a3e" /> </p>
 
 <p align="center">
   <b>From Ponytown? Glad to know i peaked your interest!
