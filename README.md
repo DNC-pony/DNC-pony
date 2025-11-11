@@ -1,7 +1,6 @@
 
 <p align="center"> <img width="800" height="975" alt="image" src="https://github.com/user-attachments/assets/cb909b28-2a1b-4570-8b95-39da2fc93c29" /> </p>
-
-<p align="center"> <img width="800" height="975" alt="image" src="https://github.com/user-attachments/assets/a161c605-61db-4cf3-969c-d8192893a765" /> </p>
+<p align="center"> <img width="800" height="975" alt="image" src="[https://github.com/user-attachments/assets/a161c605-61db-4cf3-969c-d8192893a765](https://github.com/user-attachments/assets/6f0a24ca-d2f4-49ad-9b65-ce9bca622db1)" /> </p>
 
 <p align="center">
   <b>From Ponytown? Glad to know i peaked your interest!
