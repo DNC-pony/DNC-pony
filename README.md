@@ -12,5 +12,5 @@
   DNI: Proshippers OR IF my friends dislike you = blocked.</b><br>
   </p><img
 
-<p align="center"><img width="980" height="111" alt="I love you popup" src="Iloveyou.gif" /> </p> 
+<p align="center"></p>
 <p align="center"> <img width="400" height="275" alt="image" src="https://i.pinimg.com/originals/c7/51/80/c75180dd098b1c25c8ef37ff4ffdcd4a.gif" /> 
