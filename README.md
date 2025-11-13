@@ -8,9 +8,9 @@
 
 
 <p align="center"><b> don't cover/sit on me or my friends for too long, you will be hidden.<br>
- ➜ ​🇸​​🇪​​🇦​​🇷​​🇨​​🇭​​🇮​​🇳​​🇬​ ​🇫​​🇴​​🇷​ ​🇲​​🇪​? @ ​🇵​​🇮​​🇨​​🇳​​🇮​​🇨​ ​🇹​​🇦​​🇧​​🇱​​🇪​, ​🇧​​🇦​​🇰​​🇪​​🇷​​🇾​ ​🇲​​🇦​​🇷​​🇰​​🇪​​🇹​ ​🇱​​🇴​​🇨​​🇦​​🇹​​🇮​​🇴​​🇳​, ​🇨​​🇦​​🇲​​🇵​​🇸​​🇮​​🇹​​🇪​ ​🇴​​🇷​ ​🇷​​🇴​​🇦​​🇲​​🇮​​🇳​​🇬​<br>
+ ➜ Searching for me? @ Picnic tables, Cafe area, Campsite or Roaming!
 DNI: Proshippers, Darkshippers + etc<br> 
-   𝗜𝗳 𝗺𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗱𝗼𝗻'𝘁 𝗹𝗶𝗸𝗲 𝘆𝗼𝘂 = 𝗮𝘂𝘁𝗼𝗺𝗮𝘁𝗶𝗰 𝗯𝗹𝗼𝗰𝗸<br>
+   **IF MY FRIENDS DO NOT LIKE YOU = automatic block**<br>
   (​🇹​​🇭​​🇪​​🇮​​🇷​ ​🇨​​🇴​​🇲​​🇫​​🇴​​🇷​​🇹​​🇦​​🇧​​🇱​​🇮​​🇹​​🇾​ ​🇲​​🇦​​🇹​​🇹​​🇪​​🇷​​🇸​ ​🇦​​🇱​​🇴​​🇹​ ​🇹​​🇴​ ​🇲​​🇪​).</b><br>
   </p><img
         
