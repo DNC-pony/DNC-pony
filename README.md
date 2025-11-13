@@ -1,4 +1,4 @@
-<p align="center"><img width="2768" height="1638" alt="Untitled1388_20251113165223" src="https://github.com/user-attachments/assets/68c14bb1-c6b0-4e49-a685-179154432cc5" </p>  
+<p align="center"><img width="2568" height="1338" alt="Untitled1388_20251113165223" src="https://github.com/user-attachments/assets/68c14bb1-c6b0-4e49-a685-179154432cc5" </p>  
 
   <p align="center"><b>From Ponytown? Glad to know i peaked your interest!<br>
   She / Her .. AEST TIMEZONE.</b><br>
@@ -11,4 +11,4 @@
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
   </p><img
 
-<p align="center"> <img width="748" height="773" alt="Untitled1390_20251113220025" src="https://github.com/user-attachments/assets/f649b91c-ee52-4eaf-8538-85a34df3d8b3" /> </p> 
+<p align="center"> <img width="548" height="573" alt="Untitled1390_20251113220025" src="https://github.com/user-attachments/assets/f649b91c-ee52-4eaf-8538-85a34df3d8b3" /> </p> 
