@@ -1,5 +1,6 @@
-<p align="center"><img width="366" height="369" alt="Untitled1388_20251113165223" src="https://github.com/user-attachments/assets/8da810df-093d-4f72-92b2-3b760a5b6f34" /> </p>  
+<p align="center"><img width="2768" height="1638" alt="Untitled1388_20251113165223" src="https://github.com/user-attachments/assets/68c14bb1-c6b0-4e49-a685-179154432cc5" </p>  
 <p align="center"><img width="580" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" /> </p> 
+
 
 
   <p align="center"><b>From Ponytown? Glad to know i peaked your interest!<br>
@@ -11,7 +12,8 @@
 
 <p align="center"><b>don't cover/sit on me or my friends for too long, you will be hidden.<br>
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
-  </p>
+  </p><img
+
   
 <p align="center"><img width="580" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" /> </p> 
-<p align="center"> <img width="748" height="773" alt="image" src="https://github.com/user-attachments/assets/e410c10f-9983-4e7c-b3d8-bdd34921dc7e" /> </p> 
+<p align="center"> <img width="748" height="773" alt="Untitled1390_20251113220025" src="https://github.com/user-attachments/assets/f649b91c-ee52-4eaf-8538-85a34df3d8b3" /> </p> 
