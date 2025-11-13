@@ -1,5 +1,5 @@
 <p align="center"><img width="2568" height="1338" alt="Untitled1388_20251113165223" src="https://github.com/user-attachments/assets/68c14bb1-c6b0-4e49-a685-179154432cc5" </p>  
-
+<p align="center"><img width="980" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" /> </p> 
   <p align="center"><b>From Ponytown? Glad to know i peaked your interest!<br>
   She / Her .. AEST TIMEZONE.</b><br>
 </p>
