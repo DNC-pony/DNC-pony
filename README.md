@@ -11,5 +11,5 @@
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
   </p><img
 
-<p align="center"><img width="980" height="111" alt="image" src="https://github.com/user-attachments/assets/7dc7f8cf-c95f-4fe9-b5f6-bb1ee7ad017d" /> </p> 
+<p align="center"><img width="980" height="222" alt="image" src="https://github.com/user-attachments/assets/7dc7f8cf-c95f-4fe9-b5f6-bb1ee7ad017d" /> </p> 
 <p align="center"> <img width="548" height="573" alt="Untitled1390_20251113220025" src="https://github.com/user-attachments/assets/f649b91c-ee52-4eaf-8538-85a34df3d8b3" /> </p> 
