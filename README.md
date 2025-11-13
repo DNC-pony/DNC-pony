@@ -10,7 +10,7 @@
 <p align="center"><b> don't cover/sit on me or my friends for too long, you will be hidden.<br>
  ➜ Searching for me? @ Picnic tables, Cafe area, Campsite or Roaming!<br> 
   <br> 
-˚ᓚ₍⑅^..^₎♡₍^. .^₎⟆<br> 
+
   <br> 
    𝗜𝗙 𝗠𝗬 𝗙𝗥𝗜𝗘𝗡𝗗𝗦 𝗗𝗢 𝗡𝗢𝗧 𝗟𝗜𝗞𝗘 𝗬𝗢𝗨 = automatic block<br>
   (​​🇹​​🇭​​🇪​​🇮​​🇷​ ​🇨​​🇴​​🇲​​🇫​​🇴​​🇷​​🇹​​🇦​​🇧​​🇮​​🇱​​🇮​​🇹​​🇾​ ​🇲​​🇦​​🇹​​🇹​​🇪​​🇷​​🇸​ ​🇲​​🇴​​🇷​​🇪​ ​🇹​​🇴​ ​🇲​​🇪​ ​🇹​​🇭​​🇦​​🇳​ ​🇾​​🇴​​🇺​​🇷​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​​🇸​, ​🇸​​🇴​​🇷​​🇷​​🇾​ ​🇳​​🇴​​🇹​ ​🇸​​🇴​​🇷​​🇷​​🇾​.
