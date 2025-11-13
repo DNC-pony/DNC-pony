@@ -10,5 +10,6 @@
 <p align="center"><b>don't cover/sit on me or my friends for too long, you will be hidden.<br>
   searching for me? @ Picnic table, Bakery Market location, campsite or roaming
   </p><img
-
+        
+<p align="center"><img width="980" height="111" alt="26d49c7596895c9eab1a85511d7e920d0db70f88" src="https://github.com/user-attachments/assets/34094bb3-ce95-49e6-a3f8-46129db2917f" /> </p> 
 <p align="center"> <img width="548" height="573" alt="Untitled1390_20251113220025" src="https://github.com/user-attachments/assets/f649b91c-ee52-4eaf-8538-85a34df3d8b3" /> </p> 
