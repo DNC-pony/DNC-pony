@@ -12,7 +12,7 @@
  ➜ Searching for me? @ Picnic tables, Cafe area, Campsite or Roaming!<br> 
   <br> 
    IF MY FRIENDS DONT LIKE YOU = automatic block<br>
-  (I care more about then than a stranger so sorry not sorry)</b><br>
+  (I care more about them over a stranger. So sorry not sorry)</b><br>
   </p><img
         
 <p align="center"></p>
